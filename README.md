@@ -1,1 +1,1 @@
-# nlp2024
+# email: won.sang.l@gmail.com
